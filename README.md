@@ -11,6 +11,8 @@
 
 - 📄 Know about my experiences [Resume__😎](https://drive.google.com/file/d/1sGDh5zA9UGwDJ4SvxO9xWVK1MlUlQSjo/view?usp=sharing)
 
+- Check out my [Portfolio](https://amruta24818.github.io/Portfolio/)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
